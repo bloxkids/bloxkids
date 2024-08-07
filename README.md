@@ -1,16 +1,52 @@
-## Hi there 👋
 
-<!--
-**bloxkids/bloxkids** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+        Aprender é Bom Demais
+    
 
-Here are some ideas to get you started:
+            Blox Kids
+        
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Blox Kids
+
+Bora, Bill
+Bora, fio do Bill (bora, Bill)
+Bora, Bill
+Bora, muié do Bill (acorda!)
+
+'Bora, Bill
+'Bora, Bill
+'Bora, Bill
+Bill, Bill, Bill, Bill, Bill
+
+Aprender é sempre tão legal
+Estudar o mundo animal
+História, Geografia, Ciências
+Matemática
+
+Eu amo a escola
+Não atraso pra escola
+Eu amo a escola
+Não atraso pra escola
+
+Eu amo a escola
+Não atraso pra escola
+Eu amo a escola
+Não atraso pra escola
+
+Aprender é sempre tão legal
+Estudar o mundo animal
+História, geografia, ciências
+Matemática
+
+Eu amo a escola
+Não atraso pra escola (acorda!)
+Eu amo a escola
+Não atraso pra escola (levanta!)
+
+Eu amo a escola
+Não atraso pra escola (tá na hora!)
+Eu amo a escola
+Não atraso pra escola, galerinha
+
+Vamo acordar
+Que hoje o dia vai ser muito legal
+Bora, Bill
